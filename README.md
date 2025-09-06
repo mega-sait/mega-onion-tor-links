@@ -1,6 +1,6 @@
 # 🔍 Мега Даркнет: Полное Руководство по Доступу и Использованию в 2025
 
-<a href="https://mega2zt6vkewvx2yvc3vhpgdw5swuk2p69fg5veerc9de2f.megalll.sale">
+<a href="https://mega5n24iq9sc60j3ngtooecb6pmtb1esg8w4b7t6zxo3.mega17.top">
 <img width="1155" height="1155" alt="image" src="https://github.com/user-attachments/assets/1db831df-93b1-44d4-9fca-ced4570817a8" />
 </a>
 
